@@ -1,2 +1,4 @@
-# easilyunderstoodgods
-A study of the God of the bible. Specifically of the ways that Americans misunderstand him. Usually by highlighting one of his attributes above all others. When we do pick and choose these attributes we often end up showing more about our selves than we do about God. 
+# Gods who are easily understood
+Despite our claims to modernity, the average American will cling to many embarrassing beliefs. Perhaps foremost among them is a belief that the God of the bible is a staunch ally in the war for conservative values. Practically savages.
+
+It should come as no surprise to you then that not only is the God of the bible absent from the front lines of these fashionable wars on drugs, terror and other boogie men in brown wrappers, but that he is also absent from our alters. In his stead I have found a selection of various dieties, demons and downright delirious day dreams which can more charitably said to characterize their congregants than they can the God they profess to worship. I will attempt to collect several of them here for your edification, and correct them for our own. 
